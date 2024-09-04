@@ -4,7 +4,8 @@
  ❄️I have a sever discord here https://discord.gg/ZuUanG5h
 
 ## 🌐Socials
-https://www.facebook.com/ngcuuphilongg?locale=vi_VN
+Facebook: (https://www.facebook.com/ngcuuphilongg?locale=vi_VN)
+Ig: (https://www.instagram.com/_.plz0g/)
 ---
 [![](https://visitcount.itsvg.in/api?id=SnowL1402&icon=2&color=5)](https://visitcount.itsvg.in)
 
