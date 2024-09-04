@@ -1,6 +1,6 @@
-# 💫About Me :
-✨Nguyen Cuu Phi Long.                                                                                                                                                                                                                                              
-✨Live in Hue City.                                                                                                                                                                                                                                                    
+#  :
+☃️not plgztn#1912.                                                                                                                                                                                                                                              
+❄️19 year old.                                                                                                                                                                                                                                                    
  ❄️I have a sever discord here https://discord.gg/ZuUanG5h
 
 ## 🌐Socials
