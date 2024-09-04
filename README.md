@@ -1,7 +1,7 @@
 # About Me :
 ☃️not plgztn#1912.                                                                                                                                                                                                                                              
-❄️19 year old.                                                                                                                                                                                                                                                    
- ❄️I have a sever discord here https://discord.gg/ZuUanG5h
+❄19 year old.                                                                                                                                                                                                                                                    
+❄I have a sever discord here https://discord.gg/ZuUanG5h
 ---
 [![](https://visitcount.itsvg.in/api?id=SnowL1402&icon=2&color=5)](https://visitcount.itsvg.in)
 
