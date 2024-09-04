@@ -4,12 +4,7 @@
  ❄️I have a sever discord here https://discord.gg/ZuUanG5h
 
 ## 🌐Socials
-[![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/https://www.facebook.com/profile.php?id=100075340962756) 
-# 📊GitHub Stats :
-![](https://github-readme-stats.vercel.app/api?username=SnowL1402&theme=dark&hide_border=false&include_all_commits=false&count_private=false)<br/>
-![](https://github-readme-streak-stats.herokuapp.com/?user=SnowL1402&theme=dark&hide_border=false)<br/>
-![](https://github-readme-stats.vercel.app/api/top-langs/?username=SnowL1402&theme=dark&hide_border=false&include_all_commits=false&count_private=false&layout=compact)
-
+[![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)]([https://facebook.com/https://www.facebook.com/profile.php?id=100075340962756](https://www.facebook.com/ngcuuphilongg?locale=vi_VN)) 
 ---
 [![](https://visitcount.itsvg.in/api?id=SnowL1402&icon=2&color=5)](https://visitcount.itsvg.in)
 
